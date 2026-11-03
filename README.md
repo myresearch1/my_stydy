@@ -1,1 +1,1 @@
-# my_stydy
+# my_study
